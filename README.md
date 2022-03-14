@@ -1,6 +1,6 @@
-### 🧰 🔧 🛠️ beating tools into housewares  🍳 ⚗️ 🔮 ☁️
+### 🧰 🔧 🛠️ beating tools into housewares  🍳 ⚗️ ☁️
 
-o that this too solid text would melt thaw and resolve itself into a dew 
+o that this too-solid text would melt thaw & resolve itself into a dew 
 
 <!--
 **disconcision/disconcision** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
