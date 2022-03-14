@@ -1,4 +1,4 @@
-### 🧰 🔧 🛠️ 🧲 beating tools into housewares  🍳 ⚗️ 🔮 ☁️
+### 🧰 🔧 🛠️ beating tools into housewares  🍳 ⚗️ 🔮 ☁️
 
 o that this too solid text would melt thaw and resolve itself into a dew 
 
