@@ -1,5 +1,7 @@
-### 🧰 🔧 🛠️ o that these too-solid screens would melt thaw & resolve themselves into a dew   🍳 ⚗️ ☁️
-
+🙏 o that these <br>
+too-solid 🖥️ screens 📱 <br>
+would 🧊 melt 💦 thaw 🌊 & resolve ⚗️<br>
+themselves ☔ into 🌧️ a dew ☁️
 
 
 <!--
