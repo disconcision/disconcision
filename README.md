@@ -1,6 +1,6 @@
 🙏 o that these <br>
 too-solid 🖥️ screens 📱 <br>
-would 🧊 melt 💦 thaw 🌊 & resolve ⚗️<br>
+would melt 🧊, thaw 🌊, & resolve ⚗️<br>
 themselves ☔ into 🌧️ a dew ☁️
 
 
